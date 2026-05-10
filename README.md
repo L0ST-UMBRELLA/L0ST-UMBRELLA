@@ -13,3 +13,7 @@ sometimes im mainly busy taking care of things and dont have time to chat so its
 
 if i suddely leave, no i do not hate you and im not holding anything against u its probably a bad mood or i dont wanna talk and lost energy
 again sorry not sorry for the way i act deal with it.
+
+
+
+<img width="599" height="449" alt="Screenshot_10-5-2026_44432_pony town" src="https://github.com/user-attachments/assets/e22c8269-913d-4599-adb1-9eee5acbdae4" />    i love u idiots
